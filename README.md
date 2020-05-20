@@ -1,0 +1,2 @@
+# skip-hire-Tooting
+Tooting Skip Hire is the best waste management company in Tooting and beyond London. Get your rubbish clearance experts at cheap prices and best quality service with Tooting Skip Hire. We offer skips of all sizes (2, 3, 4, 6, 8, 10, 12, 14, 16, 20, 40) Yards and Mini, Midi, Small, Large, Builders skips, Roll on Roll off Skips and wait &amp; Load skips for waste removals in Tooting.Call us on 020 87867000 and rent your skip in your budget. 
